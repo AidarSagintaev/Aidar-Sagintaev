@@ -1,1 +1,0 @@
-# Aidar-Sagintaev
